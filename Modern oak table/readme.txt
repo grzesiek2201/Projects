@@ -1,0 +1,2 @@
+This table was a fun build. It has been built from scrap. I got the oak from a lumber mill, the steel pipe for legs from the wholesaler and put it all together.
+Nothing beats the feeling of a beautiful natural wood furniture built by yourself.
