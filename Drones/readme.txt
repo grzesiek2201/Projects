@@ -1,0 +1,1 @@
+As FPV drones are my biggest and oldest passion to date, my beginnings aren't really well documented. Nor is any other part of this passion. I keep it mostly to myself, occasionally sharing some videos of flying, but here you can see a part of what I've built so far.
