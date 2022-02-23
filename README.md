@@ -1,2 +1,2 @@
 # Projects
-Personal projects to share with the ones interested.
+Personal projects not realted to coding to share with the ones interested.
